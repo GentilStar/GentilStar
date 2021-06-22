@@ -1,14 +1,18 @@
-### Hi there 👋
+👋
+
+GentilStar#6666
+G3ntilS3ar#6666
 
 
-Here are some ideas to get you started:
+🧒 - Facundo
+🔢 - 15
+🙋‍♂️ - Male
+💫 - Argentina
+👑 - LinkSquad
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->xd
+
+
+
+
+
+
