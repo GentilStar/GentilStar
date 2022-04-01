@@ -1,11 +1,9 @@
 
 
 
-GentilStar#6666
-G3ntilS3ar#6666
+GentilStar#0001
 
 
-🧒 - Facundo
 
 🔢 - 15
 
@@ -13,10 +11,11 @@ G3ntilS3ar#6666
 
 💫 - Argentina
 
-👑 - LinkSquad
+👑 - ViperSQ  
 
 🦤 - @Gentil_Star
 
 discord.gg/linksquad
+t.me/vipersq
 
 
